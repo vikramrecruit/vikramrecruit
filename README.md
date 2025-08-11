@@ -1,6 +1,6 @@
-### Hi, I’m Vikram — Talent Acquisition Leader | US & India Hiring | AI-in-Recruitment Advocate
+### Hi, I’m Vikram — Talent Acquisition Leader | US Hiring | AI-in-Recruitment Advocate
 
-- 💼 16+ years in recruitment, bridging US & India talent markets.
+- 💼 16+ years in recruitment, bridging US talent market.
 - 🌍 Experience in high-volume hiring, niche tech/non-tech roles, and leadership hiring.
 - 🤖 Passionate about integrating AI into the hiring process — from crafting impactful job descriptions to screening, candidate engagement, and process optimization.
 - 📈 Achievements:
